@@ -7,7 +7,7 @@
 
 - ⚡ Fun fact **I think I will go to MIT**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: joynjollykim@gmail.com </h3>
 <p align="left">
 </p>
 
